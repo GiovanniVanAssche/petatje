@@ -1,1 +1,1 @@
-Ga naar https://giovannivanassche.github.io/congeutexbeltpa.tk/login.html
+Ga naar https://giovannivanassche.github.io/petatje/login.html
